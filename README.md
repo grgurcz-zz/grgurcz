@@ -1,0 +1,5 @@
+- 👋 Suuuuuh dudde, I’m @grgurcz
+- 👀 I’m interested in ... my favorite pair of socks.
+- 🌱 I’m currently learning ... how to convert turtles to Islam.
+- 💞️ I’m looking to collaborate on ... the takeout bill.
+- 📫 How to reach me ... don't. I'm not very interesting.
